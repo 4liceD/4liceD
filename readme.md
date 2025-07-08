@@ -1,1 +1,1 @@
-![4liced newer thumbnail no drop](https://github.com/user-attachments/assets/a5425d7a-c7e3-4fd2-81d0-0d04c01d051c)
+![drop and stroke harder](https://github.com/user-attachments/assets/399b9e52-c0d9-4ad4-8a0f-65c27d3d50e4)
