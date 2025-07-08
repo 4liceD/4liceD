@@ -1,1 +1,1 @@
-![no future remake](https://github.com/user-attachments/assets/dab9c937-e226-4925-bef3-92f7af20e4f6)
+![4liced newer thumbnail](https://github.com/user-attachments/assets/0a2f59f5-5afa-4df4-ac80-3cc82d160c61)
