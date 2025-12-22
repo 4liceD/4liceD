@@ -1,1 +1,1 @@
-![drop and stroke harder](https://github.com/user-attachments/assets/399b9e52-c0d9-4ad4-8a0f-65c27d3d50e4)
+![notworthmytime-ezgif com-optimize (2)](https://github.com/user-attachments/assets/e2c798eb-38c9-433c-b056-bd2296d41d45)
